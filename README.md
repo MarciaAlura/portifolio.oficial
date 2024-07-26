@@ -12,6 +12,6 @@
 
 ## Feito por:
 
-### MarciaAlyra
+### MarciaAlura
 
 ### Linkedin: https://www.linkedin.com/school/aluracursos/
